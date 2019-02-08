@@ -15,7 +15,7 @@ Serves 4-6
 * Brown the ground meat
 * Add coarsely chopped onions, until onions are somewhat translucent
 * Add all the canned stuff 
-* Stir ingredients
+* Stir ingredients, crushing tomatoes into smaller pieces
 * Uncovered, heat the chili until hot and noticeably bubbling
 * Remove chipotle peppers, unless you like pain
 * (optional) rip off large chunks of kale, and add to the chili
